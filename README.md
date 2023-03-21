@@ -1,1 +1,0 @@
-# yaringenish.github.io
